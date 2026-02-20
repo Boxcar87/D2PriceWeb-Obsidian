@@ -1,0 +1,8 @@
+[[Annihilus]]
+[[Highlord's Wrath]]
+[[Tal Rasha's Amulet]]
+[[Nagelring]]
+[[Mara's Kaleidoscope]]
+[[Bul-Kathos Wedding Band]]
+[[RavenFrost]]
+[[Stone of Jordan]]
